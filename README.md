@@ -1,0 +1,63 @@
+# 百足 – Error
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Moonlight sunlight 夢を見ている
+あの空飛び立ち君に会いに行けたら
+いいのに
+もう戻らないtime
+Could you lie for me, l really
+change for you , it we phone me
+to be.
+簡単じゃない yea yea yea ah.
+描いたlife yea yea yea ah.
+loose time
+君意外ありえない
+あの日交換したLINE
+向けた愛 いつのまに君はもうMy
+sweet honey.
+どうしようもなくなった時
+開くアルバム
+この先でも俺達なら進んで行けるは
+ず
+くだらない喧嘩しては November
+絶賛メンタル強化月間
+お揃いのスニーカー履いて開ける玄
+関 また step up.
+Driinking liquor all you singing
+luck to all.
+忘れたい でも夢またであう
+君との出会いは Error.
+重なる冷たい手が
+2人の恋ならbitter.
+この歌が最初で最後のletter
+you only
+君しか似合わない blue neon city
+2人歩いた街中 buddy
+you go show me show me show me
+ready you mine
+I know you know you know you
+know you
+まだ二人は闇の中
+抜け出すclubを going home
+気にしね　周りなら
+君と笑えれば理想　理想
+でも俺は背を向けて考えた
+どうしようもないもう君といられな
+い
+でももう一度触れ合えば
+とか考えた俺なら馬鹿
+What you need ? What you need ?
+What you need ? What you need ?
+でも　so whant you love だから
+one more taime yea
+Driinkng liquor all you singing
+luck to all.
+忘れたい
+でもまた夢であう君との出会いは
+Error.
+重なる冷たい手が
+2人の恋ならbitter
+この歌が最初で最後のletter
+```
